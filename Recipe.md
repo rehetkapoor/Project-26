@@ -1,1 +1,1 @@
-This is a Red Velvet Cake
+This is a Red Velvet Cake recipe

@@ -1,3 +1,5 @@
+Ingredients:
+
 ½ cup butter 113 grams, room temperature,
 2 tsp vanilla extract 10mL
 1 cup buttermilk 240ml, room temperature

@@ -1,3 +1,5 @@
+Steps:
+
 Preheat the oven to 350 degrees F. Butter and cocoa powder three 6-inch cake pans.
 In a standing mixer fitted with a paddle attachment, cream your room temperature butter. Add in sugar and mix on medium until combined.
 Add eggs in one at a time and beat. Add vanilla extract.
